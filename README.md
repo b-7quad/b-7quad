@@ -1,0 +1,2 @@
+- 👋 Hi, I'm running a B-SQUAD project.
+- 👀 I’m a Russian-speaking user.
